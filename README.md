@@ -2,7 +2,7 @@
 - 👀 I’m interested in Building Creative Websites
 - 🌱 I’m currently learning Full Stack Web Dev with BlockChain
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me : adikumarsahu123@gmail.com
+- 📫 How to reach me : shri.hari.dasanudas1@gmail.com
 - 😄 Pronouns: Creative_Creat
 - ⚡ Fun fact: You are here
 
